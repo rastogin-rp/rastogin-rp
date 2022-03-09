@@ -1,6 +1,6 @@
 ### Hello there, found my work account, aye? 😉
 
-Awesome, It's nice to e-meet you! But there's nothing fancy here, just some minor ideas and tangets if anything. 
+Awesome, It's nice to e-meet you! But there's nothing fancy here, just some minor ideas and tangents if anything. 
 
 🔭  Instead, checkout my personal account ([@neelrast](https://github.com/neelrast)) for all of my OSS projects.
 
