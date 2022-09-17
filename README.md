@@ -1,4 +1,4 @@
-### Hello there, found my work account! 😉
+### Hey, you found my work account! 😉
 
 Awesome, It's nice to e-meet you! But there's nothing fancy here, just some minor ideas and tangents if anything. 
 
